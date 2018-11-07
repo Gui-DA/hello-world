@@ -1,2 +1,4 @@
 # hello-world
 Face the Absurd!
+
+Our nature is one of purpose-seeking, yet nature for us is one of complete obscurity on universal purpose. So this one vital property of our lives, ultimate meaning, must at its best be local, be ours. We believe and act upon our own crafted purposes, although we know that to be our own crafted illusions, because natural objective purpose is hidden, far beyond our grasp. We just go, like fishes in a pond, clueless about the skies and laws above the surface. That's the Absurd, it is on the making of illusions that we can hope to satisfy our most primal need to know and remove the illusions, our drive to find meaning; all of this under the awareness and responsibility of our doings. We face the absurd in all its terms, we admit ourselves to be fictions, we play along, knowing that the game is all we have, even though we know it is possible do have more. We just happe to not have more.
